@@ -16,8 +16,6 @@ I am a follower of Jesus. Christianity is the spiritual language in which I lear
 
 That conviction is what gave birth to this book.
 
-## An Ancient Voice
-
 The *Dao De Jing*, also written *Daodejing* and historically known simply as the *Laozi*, is one of the foundational texts of Chinese philosophy. Tradition attributes it to Laozi—“the Old Master”—who was said to have lived around the sixth century BCE. The historical picture is much less certain. Modern scholarship generally places much of the text's formation in the fourth and third centuries BCE, likely drawing upon sayings and traditions that circulated earlier and were gathered and refined over time. Ancient manuscript discoveries at Guodian and Mawangdui have shown that different forms and arrangements of the text circulated before the familiar eighty-one-chapter version became established.
 
 Perhaps that uncertainty is appropriate for a book whose opening lines warn us that the Way that can be captured in words is not the enduring Way.
