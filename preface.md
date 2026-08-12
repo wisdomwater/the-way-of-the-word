@@ -16,6 +16,8 @@ I am a follower of Jesus. Christianity is the spiritual language in which I lear
 
 That conviction is what gave birth to this book.
 
+### The Ancient Way
+
 The *Dao De Jing*, also written *Daodejing* and historically known simply as the *Laozi*, is one of the foundational texts of Chinese philosophy. Tradition attributes it to Laozi—“the Old Master”—who was said to have lived around the sixth century BCE. The historical picture is much less certain. Modern scholarship generally places much of the text's formation in the fourth and third centuries BCE, likely drawing upon sayings and traditions that circulated earlier and were gathered and refined over time. Ancient manuscript discoveries at Guodian and Mawangdui have shown that different forms and arrangements of the text circulated before the familiar eighty-one-chapter version became established.
 
 Perhaps that uncertainty is appropriate for a book whose opening lines warn us that the Way that can be captured in words is not the enduring Way.
@@ -34,7 +36,7 @@ It speaks of the *Dao*—the Way—as something that cannot finally be named or 
 
 As I read these words, I sometimes find myself thinking of Galilee.
 
-## The Sage and the Carpenter
+### The Sage and the Carpenter
 
 I hear of water seeking the lowest place, and I remember a teacher kneeling with a towel around his waist to wash his disciples' feet.
 
@@ -58,7 +60,7 @@ Sometimes I hear something in Laozi that helps me hear Jesus differently. Someti
 
 That is the spirit in which I wrote these pages.
 
-## An Elder Who Walked Both Roads
+### An Elder Who Walked Both Roads
 
 The voice speaking through these devotionals is fictional.
 
@@ -82,7 +84,7 @@ So he listens.
 
 And then he tells us what he has seen.
 
-## Open Hands
+### Open Hands
 
 This book is therefore not intended as a systematic comparison of Christianity and Daoism. It is not an argument that the *Dao* is simply another name for the Christian God, nor that every teaching in these traditions can be reconciled.
 
@@ -98,15 +100,11 @@ I suspect that wisdom is much larger than the containers in which we receive it.
 
 Rain falls upon monastery roofs and bamboo groves. The same moon appears over Jerusalem and ancient China. Human beings everywhere have known grief and desire, ambition and failure, love and death. Everywhere we have looked into the darkness and wondered what holds all of this together.
 
-Perhaps we can learn from one another without surrendering the paths we love.
-
-For me, that means remaining a follower of Jesus while sitting gratefully at the feet of Laozi as a wise teacher.
+Perhaps we can learn from one another without surrendering the paths we love. For me, that means remaining a follower of Jesus while sitting gratefully at the feet of Laozi as a wise teacher.
 
 And perhaps that is enough.
 
-So I invite you to read these pages slowly.
-
-Do not worry about agreeing with everything. Do not hurry to decide whether two traditions are saying precisely the same thing. Let the images remain images for a while.
+So I invite you to read these pages slowly. Do not worry about agreeing with everything. Do not hurry to decide whether two traditions are saying precisely the same thing. Let the images remain images for a while.
 
 Sit beside the water.
 
